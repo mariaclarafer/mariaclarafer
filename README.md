@@ -5,4 +5,10 @@ boas-vindas 🩵
 
 -Aluna da Cintia 🤙
 
--vai xiando 💋
+-vai xiando
+
+-maior fã da Aghata Nunes 💋
+
+-quero cursar design 
+
+![](https://media.tenor.com/zKrETaCIymIAAAAM/afonsinha-folkloreperry.gif)
