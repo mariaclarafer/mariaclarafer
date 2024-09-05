@@ -5,6 +5,8 @@ boas-vindas 🩵
 
 -Aluna da Cintia diva 🤙
 
+-torço pro flamengo 
+
 -vai xiando
 
 -maior fã da Aghata Nunes 💋
