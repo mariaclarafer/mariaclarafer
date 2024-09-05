@@ -3,7 +3,7 @@ boas-vindas 🩵
 
 -Estou estudando na [alura](https://www.alura.com.br/)
 
--Aluna da Cintia 🤙
+-Aluna da Cintia diva 🤙
 
 -vai xiando
 
