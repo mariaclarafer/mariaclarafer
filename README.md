@@ -16,5 +16,5 @@ boas-vindas 🩵
 ![](https://media.tenor.com/zKrETaCIymIAAAAM/afonsinha-folkloreperry.gif)
 
 
-![](https://tenor.com/pt-BR/view/afonsinha-call-talk-phone-gif-15735397)
+
 
